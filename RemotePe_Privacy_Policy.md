@@ -1,4 +1,4 @@
-# Privacy Policy for RemotePe
+# Privacy Policy
 
 At RemotePe, we are committed to protecting the privacy and security of our users' personal information. This Privacy Policy explains how we collect, use, and protect your personal information, and your rights in relation to your personal information.
 
